@@ -1,3 +1,0 @@
-dalfha
-fsf
-sdgs
